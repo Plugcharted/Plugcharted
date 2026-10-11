@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">‎
-<img src="https://media.discordapp.net/attachments/1220394704852746323/1557833405448593569/Uncharted_4_2.png?ex=6ac93ceb&is=6ac7eb6b&hm=51d997ff72ee6049e7204f1431b9267cf08f7a63d9089869ec4aea64e712e85f&=&format=webp&quality=lossless&width=640&height=360"width=500>
+<img src="https://media.discordapp.net/attachments/1484923353826332744/1558807876611608628/a65d37077f446a77.png?ex=6accc877&is=6acb76f7&hm=2b1b4b5b90f0ba1400fb5894180a47b594a5bb5caab6d765e0d6c89987802e67&=&format=webp&quality=lossless"width=400>
 
 <p align="center">
 Egor/Simon idgaf which one you use
