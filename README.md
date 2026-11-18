@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">‎
-<img src="https://media.discordapp.net/attachments/1006105616705658880/1564372704386088960/fa80b55b7bac8740.png?ex=6ae1071d&is=6adfb59d&hm=6b0a3926886f9aae68ecae76fca0fc06757c5020b54776ea332b945512f8c28b&=&format=webp&quality=lossless"width=300>
+<img src="https://media.discordapp.net/attachments/1006105616705658880/1572708889198202970/pobrany_plik_-_2026-11-18T212332.141.jpg?ex=6aff5aca&is=6afe094a&hm=726c4b128948f3c1878e6cbf006a77e201d0e5250e67bf568484704d2edfdcbc&format=webp"width=300>
 
 <p align="center">‎
 Egor/Simon idgaf which one you want to use on me. Huge Uncharted nerd and no1 rafthan shipper
